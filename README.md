@@ -3,6 +3,8 @@
 🏳️‍⚧️ | Made in China 2012
 跨女+女同 受虐癖🩵🩷🤍
 
+萝莉控&正太控🥵🥵喵喵
+
 日常狀態：痛苦/無特別心情/快樂（50% la）
 
 
@@ -18,4 +20,4 @@ dont call me gay or a male or else i'll bite u :3😿
 fav language: Lua | fav font: 宋體.ttf | Mifans, love HyperOS
 🩵🩷🤍ict🤍🩷🩵
 
-last update 7 Oct 2026, 17:15
+last update 10 Oct 2026, 10:27
