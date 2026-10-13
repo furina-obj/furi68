@@ -16,8 +16,10 @@ or call me男娘/偽娘
 
 dont call me gay or a male or else i'll bite u :3😿
 
+everytime i see a girl makes me feel heartbreak, pls dont stimulate me
+
 
 fav language: Lua | fav font: 宋體.ttf | Mifans, love HyperOS
 🩵🩷🤍ict🤍🩷🩵
 
-last update 10 Oct 2026, 10:27
+last update 14 Oct 2026, 00:50
