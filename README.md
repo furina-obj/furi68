@@ -3,9 +3,9 @@
 🏳️‍⚧️ | Made in China 2012
 跨女+女同 受虐癖🩵🩷🤍
 
-萝莉控&正太控🥵🥵喵喵
+Mesugaki🥰zakozako
 
-日常狀態：痛苦/無特別心情/快樂（50% la）
+日常狀態：痛苦/on9/uhh
 
 
 or call me男娘/偽娘
@@ -22,4 +22,4 @@ everytime i see a girl makes me feel heartbreak, pls dont stimulate me
 fav language: Lua | fav font: 宋體.ttf | Mifans, love HyperOS
 🩵🩷🤍ict🤍🩷🩵
 
-last update 14 Oct 2026, 00:50
+last update 16 Oct 2026, 01:17
