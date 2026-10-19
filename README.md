@@ -14,7 +14,7 @@ or call me男娘/偽娘
 (NOT gay!!!性取向≠性別認同！！！）
 
 
-dont call me gay or a male or else i'll bite u :3😿
+是女孩子不是男孩子！！呜呜😭
 
 everytime i see a girl makes me feel heartbreak, pls dont stimulate me
 
@@ -22,4 +22,4 @@ everytime i see a girl makes me feel heartbreak, pls dont stimulate me
 fav language: Lua | fav font: 宋體.ttf | Mifans, love HyperOS
 🩵🩷🤍ict🤍🩷🩵
 
-last update 16 Oct 2026, 01:17
+last update 19 Oct 2026, 08:02
